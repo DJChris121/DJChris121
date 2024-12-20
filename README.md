@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @DJChris121
+- 👀 I’m interested in game and software developing
+- 🌱 I’m currently learning through youtube tutorials
+- 💞️ I’m looking to collaborate on a cozy theme indie game like starderw valley and animal crossing
+- 📫 How to reach me: scratch.mit.edu/users/Astron-naut-77777342 and go to comment section at bottom of profile page
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: i like aquatics and marine biology
